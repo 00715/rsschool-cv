@@ -1,5 +1,5 @@
 1. Finahenau Dzmitry
-2. mobile/ +375(29)5984545
+2. mobile/ +375(29)5984545, mail/ dimkafin00715@gmail.com
 3. I am long on effort and enthusiasm, although short on experience.
 4. Technical Skills : HTML
 5. Without work experience
